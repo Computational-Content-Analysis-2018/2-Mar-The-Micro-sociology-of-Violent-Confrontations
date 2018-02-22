@@ -1,0 +1,2 @@
+# Comments on: The Micro-sociology of Violent Confrontations
+[Collins, Randall. 2009. “The Micro-sociology of Violent Confrontations” (Chapter 1) and “Confrontational Tension and Incompetent Violence” (beginning of Chapter 2) from Violence: A Microsociological Theory: 37-43.](('https://canvas.uchicago.edu/courses/13021/files/1170281/download?wrap=1',))
